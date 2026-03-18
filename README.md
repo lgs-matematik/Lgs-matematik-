@@ -1,1 +1,0 @@
-# Lgs-matematik-
